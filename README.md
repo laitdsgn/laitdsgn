@@ -1,3 +1,1 @@
--  Hi, I’m @laitdsgn and im beginner 🙋‍♂️
--  I’m interested in playing games, programming 🎮
--  I’m currently learning JS, Html and CSS 💻
+I ain't readin allat 🔥🔝
