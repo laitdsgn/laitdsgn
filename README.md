@@ -1,1 +1,1 @@
-I ain't readin allat 🔥🔝
+I ain't writin allat 🔥🔝
