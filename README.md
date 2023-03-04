@@ -1,1 +1,1 @@
-I ain't writin allat 🔥🔝
+My programming skill are ⬇️ but we 🆙🔥
