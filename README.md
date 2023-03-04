@@ -1,1 +1,1 @@
-My programming skill are ⬇️ but we 🆙🔥
+My programming skills are ⬇️ but we 🆙🔥
