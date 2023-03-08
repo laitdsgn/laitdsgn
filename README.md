@@ -1,1 +1,2 @@
-My programming skills are ⬇️ but we 🆙🔥
+From: Poland 🇵🇱
+Currently learning: JS, Html, and CSS
