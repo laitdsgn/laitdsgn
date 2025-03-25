@@ -1,4 +1,4 @@
  Im currently learning: 
- - PHP
- - Java
+ - Unreal Engine 5
+ - Next JS
  - C#
