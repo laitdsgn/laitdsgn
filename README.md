@@ -1,7 +1,6 @@
-#  About Me:
-Hi, Im Tomasz, Game and Web Developer from Poland.
+## Hi, Im Tomasz, Game and Web Developer from Poland.
 
-### 
+## 
 „The people who are crazy enough to think they can change the world are the ones who do.” - Rob Siltanen
 
 ##  You can help me by Donating
